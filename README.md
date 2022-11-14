@@ -329,8 +329,8 @@ $
 
 👤 **MOYOSOREOLUWA ISRAEL AJAYI**
 
-- GitHub: [@JUSTICEMENSAH-ALX](https://github.com/JUSTICEMENSAH-ALX)
-- LinkedIn: [LinkedIn](linkedin.com/in/mensah-blay-justice)
-- Twitter: [@JUSTICEMBLAY](https://twitter.com/justicemensahblaymewube)
+- GitHub: [@FLOWBIZ247](https://github.com/FLOWBIZ247)
+- LinkedIn: [LinkedIn](https://www.linkedin.com/in/moyosoreoluwa-ajayi-b96758248/)
+- Twitter: [@Ajayisrael7](https://twitter.com/Ajayisrael7)
 
 ***
